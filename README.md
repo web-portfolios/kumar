@@ -1,2 +1,0 @@
-# kumar
-Kumar's Portfolio
